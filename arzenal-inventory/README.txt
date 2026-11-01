@@ -1,0 +1,1 @@
+I cannot make the sales function in time, so only the inventory remains.
